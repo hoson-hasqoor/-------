@@ -96,7 +96,7 @@
 ## 🔗 تحميل الكتاب  
 
 📂 يمكنك قراءة الكتاب كاملًا من هنا:  
-[📖 Beige Neutral Brand Style Course Workbook Booklet (PDF)](./Beige%20Neutral%20Brand%20Style%20Course%20Workbook%20Booklet.pdf)  
+[📖 تحميل الكتاب (PDF)](./كتابي-الأول.pdf)
 
 ---
 
